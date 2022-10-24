@@ -1,1 +1,0 @@
-# racunarska-tehmika
